@@ -1,0 +1,1 @@
+# Kichik_Akademiya
